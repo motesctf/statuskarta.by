@@ -1,0 +1,1 @@
+# statuskarta.by\n
